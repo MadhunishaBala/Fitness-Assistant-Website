@@ -10,7 +10,13 @@ My Work :
 
 ![image](https://github.com/MadhunishaBala/Fitness-Assistant-Website/assets/127708789/028d854f-e5f4-4016-bae9-4f89576e0adf)
 
+
+
 ![image](https://github.com/MadhunishaBala/Fitness-Assistant-Website/assets/127708789/216673cc-6901-4f7c-adf6-9a22293d5bf3)
 
+
+
+
 ![image](https://github.com/MadhunishaBala/Fitness-Assistant-Website/assets/127708789/ebc8cb4e-67cf-4447-b8cf-50c05eff57e4)
+
 
